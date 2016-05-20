@@ -40,6 +40,8 @@ Double vie de Véronique（双面薇若妮卡）是波兰著名导演克日什�
 
 ## 互联网界的霍格沃兹
 
+## 打倒心里的“伏地魔”
+
 ## 猫头鹰与Email
 
 ## 从Technophobia 到Technotopia

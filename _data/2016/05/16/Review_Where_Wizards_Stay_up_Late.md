@@ -42,7 +42,7 @@ Double vie de Véronique（双面薇若妮卡）是波兰著名导演克日什�
 
 ## 互联网界的霍格沃兹
 
-
+在互联网萌芽过程中，(BBN公司)[http://baike.baidu.com/link?url=GEK3vHsVBlbaPHRvXf68-w-l3GaBaHnS-wnKMIUSXHatfT9xBSCEZUPvdNPHV_P_XMNvAXpxvi1ytrDor5wBVK]可以被比做是互联网界的霍格沃兹。如同我们在百度里看到的一样，国内对于BBN公司的认知几乎是空白。但是我们无法忽视这群近乎“隐世”的巫师们，也无法忽视这群巫师是如何慢慢成长起来。这本书的第三章叫做“The Third University（第三大学）”，很贴切地向我们传递了这样一个信息：**在BBN里工作，如同在大学中一样，随时随地都能学到新知识，随时随地都能迸发出新点子**。BBN所塑造的环境，也许是大多数公司管理想要达到的“乌托邦”。然而，似乎世间唯此一个BBN，如同唯此一间霍格沃兹。
 
 ## 打倒心里的“伏地魔”
 

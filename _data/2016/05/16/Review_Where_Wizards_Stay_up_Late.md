@@ -38,7 +38,7 @@ Double vie de Véronique（双面薇若妮卡）是波兰著名导演克日什�
 
 基耶斯洛夫斯基在这部作品里探讨了**宿命**与**巧合**，如同每一段历史所具备的要素一样，这种宿命与巧合往往会成为故事里不可缺少的亮色。因此，我们也不可忽视在互联网发明历程中所出现的这段巧合，这次故事不是发生在法国与波兰，而是相隔更遥远的**英国**和**美国**。他们是英国的[Donald Watts Davies](https://en.wikipedia.org/wiki/Donald_Davies)和美国的[Paul Baran](https://en.wikipedia.org/wiki/Paul_Baran)。尽管Baran从事军事领域的技术研究，而Davies希望创造一个可供大众交流的新型网络，他们最终得出了相似的结论：对数据进行**分组交换**。言简意赅的说，就是把一个整体拆成许多部分、通过不同的渠道运送到目的地。这一结论的得出几乎是**革命性的**，因为它奠定未来这些年里互联网发展的方向。
 
-![Donald Davies](DonaldDavies.jpg) ![Paul Baran](PaulDavies.jpg)
+![Donald Davies](DonaldDavies.jpg) ![Paul Baran](PaulBaran.jpg)
 
 ## 互联网界的霍格沃兹
 

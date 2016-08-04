@@ -8,7 +8,7 @@ Our story can be dated back to several decades ago.
 
 When we finally saw the real USA, we realized that there is a huge gap between our imagination and the reality.
 
-Thus, we have learn the lesson: to study a culture, the best way is to experience it in its motherland.
+Thus, we have learned the lesson: to study a culture, the best way is to experience it in its motherland.
 
 Similar to our past, you may have a Chinese dream.
 

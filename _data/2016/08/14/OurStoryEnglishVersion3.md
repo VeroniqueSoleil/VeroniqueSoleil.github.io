@@ -28,21 +28,21 @@ We do not even bother to prove it, because you can find the evidence from the da
 
 Therefore, knowing Chinese language and culture is the key factor of making fortune in your future-- you are going to make deals with Chinese people.
 
-The other past stuff I would like to show you is maintained by the Cleveland Museum of Art-- *Mountains and Rivers without End*, a Northern Song handscroll from China.
+The other past stuff I would like to show you is maintained by the Cleveland Museum of Art-- *Streams and Mountains without End*, a Northern Song handscroll from China.
 
-Inspired by it, Gary Snyder, an American man of letters who perhaps is best known as a poet, comes out a poem called *Endless Sreams and Mountains*.
+Inspired by it, Gary Snyder, an American man of letters who perhaps is best known as a poet, comes out a poem called *Endless Streams and Mountains*.
 
 In it, you could see these lines:
 
 > Walking on walking, under foot earth turns.
 
-> Sreams and mountains never stay the same.
+> Streams and mountains never stay the same.
 
 The endless realm inside the Chinese painting seems to impress him a lot.
 
 From this handscroll, what we want to tell you is that, as for "endlessness", our history, culture, business , population, opportunities... are of the similar quality.
 
-Or, at least, you can enjoy the real landscape of endless mountains and streams in China.
+Or, at least, you can enjoy the real landscape of endless streams and mountains in China.
 
 After the story, you may ask:"How about the present?"
 

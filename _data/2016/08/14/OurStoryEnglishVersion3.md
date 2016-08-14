@@ -24,7 +24,7 @@ We all know that it is one of the parts in the "Westward Movement".
 
 About the future, we dare to foresee that there will be a "Gold Rush" in an "Eastward Movement".
 
-We do not even bother to prove it, because you can find the evidence from the daily international broadcasts-- the economy, industry, science and technoloy in China all have a promised future.
+We do not even bother to prove it, because you can find the evidence from the daily international broadcasts-- the economy, industry, science and technology in China all have a promised future.
 
 Therefore, knowing Chinese language and culture is the key factor of making fortune in your future-- you are going to make deals with Chinese people.
 

@@ -28,7 +28,7 @@ We do not even bother to prove it, because you can find the evidence from the da
 
 Therefore, knowing Chinese language and culture is the key factor of making fortune in your future-- you are going to make deals with Chinese people.
 
-The other past stuff I would like to show you is maintained by the Cleveland Museum of Art-- *Streams and Mountains without End*, a Northern Song handscroll from China.
+The other past stuff we would like to show you is maintained by the Cleveland Museum of Art-- *Streams and Mountains without End*, a Northern Song handscroll from China.
 
 Inspired by it, Gary Snyder, an American man of letters who perhaps is best known as a poet, comes out a poem called *Endless Streams and Mountains*.
 
